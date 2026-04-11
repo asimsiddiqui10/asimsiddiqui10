@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I'm Asim<br>Currently working on SportTriad.<br>AI/ML researcher University of Kansas<br>
+Hi I'm Asim<br>Currently working on Spaces and SportTriad.<br>AI/ML researcher University of Kansas<br>
 
 
 ## 🌐 Socials:
